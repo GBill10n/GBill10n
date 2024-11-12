@@ -3,7 +3,7 @@
 - 🌱 I’m currently looking for a partnership/co-owner when the app is done 
 - 💞️ I’m looking to collaborate on an app i i want to make its a great opportunity to make financial wealth for both of us no games 
 - 📫 How to reach me on x @GBILL10n
-- 😄 Pronouns: ...
+- 😄 Pronouns: Him
 - ⚡ Fun fact: we both can work together on this app but i already have the full idea it's not on the market being a co-owner is your payment think smarter you would make more money than just being paid just to code
 
 <!---
